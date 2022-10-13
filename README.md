@@ -1,1 +1,1 @@
-poojithakavuri02.github.io
+https://poojithakavuri02.github.io/game.github.io/
